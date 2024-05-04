@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @em-harini
-- 👀 I’m interested in solving the unexplained intriguing questions of life that has haunted the colony of developed apes for nearly all of eternity.
+- 👀 I’m interested in exploring the mysterious and thought-provoking inquiries of physical, spiritual and universal existence that have perplexed the advanced ape community.
 - 🌱 I’m currently learning a bunch of stuff.
 - 💞️ I’m looking to collaborate on ... wait... am I?
 - 📫 How to reach me ... hmmm... I'll take care of this if you really want to reach me
